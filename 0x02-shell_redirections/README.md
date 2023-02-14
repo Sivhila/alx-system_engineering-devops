@@ -1,1 +1,1 @@
-"(Ôo)'
+Best School
